@@ -1,2 +1,2 @@
 # Jontro_Proshikkhon
-What the name means
+Exactly what the name means
